@@ -1,1 +1,1 @@
-https://alejandro-2026-dev.github.io/rsschool-cv/cv
+https://alejandro-2026-dev.github.io/rsschool-cv/
